@@ -74,6 +74,6 @@ This project is licensed under the [MIT License](LICENSE), showcasing my commitm
 
 Feel free to connect with me to discuss this project further and explore how my analytical skills can bring value to your team. Looking forward to the opportunity to contribute to data-driven success!
 
-[LinkedIn:](www.linkedin.com/in/paul-njuguna-63a869185)
+[LinkedIn:](https://www.linkedin.com/in/paul-njuguna-63a869185)
 
 ---
